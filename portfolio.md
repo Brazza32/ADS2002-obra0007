@@ -34,5 +34,6 @@ The major focus of Week 8 was on the practice presentation in class. As a group 
 
 Week 9
 
-During Week 9 I had a midsemester assessment for 2 of my other subjects and one of them was at the same time as my ADS class so I had to miss most of class this week. To make up for this, I spoke to my group members about what went on in class
+During Week 9 I had a midsemester assessment for 2 of my other subjects and one of them was at the same time as my ADS class so I had to miss most of class this week. To make up for this, I spoke to my group members about what went on in class. We decided to split into smaller groups and focus on the areas that they each agreed to do. Everyone in the group seems to be contributing an even amount and it
+has been good working as a team. In my smaller sub group it has been nice working closely with another group member on the introduction and some background research for the final report.
 
